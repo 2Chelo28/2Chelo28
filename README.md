@@ -7,6 +7,8 @@ meu nome é heloisa m. martins
 ### Você pode entrar em contato comigo 📫
 
 https://cursos.alura.com.br/user/00001120317794SP
+00001120317794sp@al.educacao.sp.gov.br
+
 
   
 
